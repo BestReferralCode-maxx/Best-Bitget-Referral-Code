@@ -1,8 +1,8 @@
-# Register Now with Referral Code (BEST99)_Give $3900 Bonus!
+# Register Now with Bitget Referral Code (BEST99)_Give $3900 Bonus!
 
 Looking for a reliable and professional crypto trading platform that rewards both beginners and seasoned traders? Look no further than Bitget — one of the world’s top derivative and spot trading exchanges. By signing up with the **referral code (BEST99)**, you’ll gain access to exclusive rewards, trading discounts, and cashback opportunities that will boost your crypto journey from day one.
 
-**🔑 Register Now with Referral Code (BEST99)**
+**🔑 Register Now with Bitget Referral Code (BEST99)**
 
 **👉 (https://partner.bitget.com/bg/YBG2PQ)**
 
